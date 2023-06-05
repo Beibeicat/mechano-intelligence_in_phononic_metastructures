@@ -1,0 +1,1 @@
+# mechano-intelligence_in_phononic_metastructures
